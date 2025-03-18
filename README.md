@@ -6,9 +6,9 @@
 </td><td align="center" width="33.333333333333336%"> <a href="https://www.famety.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="70px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/famety-buy-instagram-followers.png" alt="Famety - Buy Instagram Followers"/> </a> <p align="center" title="At Famety, you can grow your social media following quickly, safely, and easily with just a few clicks. Rated the world’s #1 social media service since 2013.">At Famety, you can grow your social media following quickly, safely, and easily with just a few clic...</p> <p align="center"> <a href="https://www.famety.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>www.famety.com</b></a> </p>
 </td><td align="center" width="33.333333333333336%"> <a href="https://poprey.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="70px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/instagram-likes.png" alt="Poprey - Buy Instagram Likes"/> </a> <p align="center" title="Buy Instagram Likes">Buy Instagram Likes</p> <p align="center"> <a href="https://poprey.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>poprey.com</b></a> </p>
 </td></tr><tr width="33.333333333333336%"><td align="center" width="33.333333333333336%"> <a href="https://musicza.co.za/?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="124px" height="52px" src="https://axios-http.com/assets/sponsors/opencollective/musicza.png" alt="Tubidy"/> </a> <p align="center" title="Tubidy: Free Music and Video Downloads | MP3, MP4">Tubidy: Free Music and Video Downloads | MP3, MP4</p> <p align="center"> <a href="https://musicza.co.za/?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>musicza.co.za</b></a> </p>
-</td><td align="center" width="33.333333333333336%"> <a href="https://www.linkedin.com/pulse/7-best-sites-buy-instagram-followers-2024-100-non-drop-arvinder-singh-u6goc/?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="63px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/bestsitesbuyinstagramfollowers.png" alt="Buy Instagram Followers"/> </a> <p align="center" title="Ookfy is the best place to buy Instagram followers, likes &amp; views. You can buy Real &amp; Non-Drop Instagram followers from Ookfy.">Ookfy is the best place to buy Instagram followers, likes &amp; views. You can buy Real &amp; Non-Dr...</p> <p align="center"> <a href="https://www.linkedin.com/pulse/7-best-sites-buy-instagram-followers-2024-100-non-drop-arvinder-singh-u6goc/?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>www.linkedin.com</b></a> </p>
 </td><td align="center" width="33.333333333333336%"> <a href="https://ssmarket.net/buy-youtube-subscribers?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="70px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/youtube-subscribers-ssmarket.png" alt="Buy Youtube Subscribers"/> </a> <p align="center" title="SS Market offers professional social media services that rapidly increase your YouTube subscriber count, elevating your channel to a powerful position.">SS Market offers professional social media services that rapidly increase your YouTube subscriber co...</p> <p align="center"> <a href="https://ssmarket.net/buy-youtube-subscribers?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>ssmarket.net</b></a> </p>
-</td></tr><tr width="33.333333333333336%"><td align="center" width="33.333333333333336%"> <a href="https://tokmax.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="70px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/tokmax.webp" alt="Tokmax"/> </a> <p align="center" title="At Tokmax, we are dedicated to being the leading platform for enhancing TikTok engagement. Whether you&#x27;re an emerging creator or an established influe">At Tokmax, we are dedicated to being the leading platform for enhancing TikTok engagement. Whether y...</p> <p align="center"> <a href="https://tokmax.com/?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>tokmax.com</b></a> </p>
+</td><td align="center" width="33.333333333333336%"> <a href="https://twicsy.com/buy-instagram-followers?utm_source&#x3D;axios&amp;utm_medium&#x3D;sponsorlist&amp;utm_campaign&#x3D;sponsorship" style="padding: 10px; display: inline-block"> <img width="85px" height="70px" src="https://axios-http.com/assets/sponsors/opencollective/buy-instagram-followers-twicsy.png" alt="Buy Instagram Followers Twicsy"/> </a> <p align="center" title="Buy real Instagram followers from Twicsy starting at only $2.97. Twicsy has been voted the best site to buy followers from the likes of US Magazine.">Buy real Instagram followers from Twicsy starting at only $2.97. Twicsy has been voted the best site...</p> <p align="center"> <a href="https://twicsy.com/buy-instagram-followers?utm_source&#x3D;axios&amp;utm_medium&#x3D;readme_sponsorlist&amp;utm_campaign&#x3D;sponsorship"><b>twicsy.com</b></a> </p>
+</td></tr><tr width="33.333333333333336%"><td align="center" width="33.333333333333336%"> <a href="https://opencollective.com/axios/contribute">💜 Become a sponsor</a>
 </td><td align="center" width="33.333333333333336%"> <a href="https://opencollective.com/axios/contribute">💜 Become a sponsor</a>
 </td><td align="center" width="33.333333333333336%"> <a href="https://opencollective.com/axios/contribute">💜 Become a sponsor</a>
 </td></tr></table>
@@ -138,6 +138,12 @@ Using pnpm:
 $ pnpm add axios
 ```
 
+Using bun:
+
+```bash
+$ bun add axios
+```
+
 Once the package is installed, you can import the library using `import` or `require` approach:
 
 ```js
@@ -160,7 +166,7 @@ const axios = require('axios');
 console.log(axios.isCancel('something'));
 ```
 
-For some bundlers and some ES6 linter's you may need to do the following:
+For some bundlers and some ES6 linters you may need to do the following:
 
 ```js
 import { default as axios } from 'axios';
@@ -375,10 +381,15 @@ These are the available config options for making requests. Only the `url` is re
   // `method` is the request method to be used when making the request
   method: 'get', // default
 
-  // `baseURL` will be prepended to `url` unless `url` is absolute.
+  // `baseURL` will be prepended to `url` unless `url` is absolute and option `allowAbsoluteUrls` is set to true.
   // It can be convenient to set `baseURL` for an instance of axios to pass relative URLs
   // to methods of that instance.
   baseURL: 'https://some-domain.com/api/',
+
+  // `allowAbsoluteUrls` determines whether or not absolute URLs will override a configured `baseUrl`.
+  // When set to true (default), absolute values for `url` will override `baseUrl`.
+  // When set to false, absolute values for `url` will always be prepended by `baseUrl`.
+  allowAbsoluteUrls: true,
 
   // `transformRequest` allows changes to the request data before it is sent to the server
   // This is only applicable for request methods 'PUT', 'POST', 'PATCH' and 'DELETE'
@@ -451,7 +462,7 @@ These are the available config options for making requests. Only the `url` is re
   },
   // Also, you can set the name of the built-in adapter, or provide an array with their names
   // to choose the first available in the environment
-  adapter: 'xhr' // 'fetch' | 'http' | ['xhr', 'http', 'fetch']
+  adapter: 'xhr', // 'fetch' | 'http' | ['xhr', 'http', 'fetch']
 
   // `auth` indicates that HTTP Basic auth should be used, and supplies credentials.
   // This will set an `Authorization` header, overwriting any existing
